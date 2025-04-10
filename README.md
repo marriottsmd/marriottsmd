@@ -6,7 +6,7 @@
 <p align=left>  god forbid that i romanticise this. </p>
 
 <p align="center">
-<img src="https://tenor.com/en-GB/view/hug-chris-md-chris-dixon-arthur-tv-arthur-frederick-gif-8308926593099812027" width="500" height="250" />
+<img src="https://tenor.com/en-GB/view/hug-chris-md-chris-dixon-arthur-tv-arthur-frederick-gif-8308926593099812027" width="480" height="480" />
 
 <p align=right> : -- " it's my comfort salad! "</p>
 
