@@ -17,7 +17,7 @@
 
 <p align=center> <a href="https://marriottsmd.straw.page/">𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚</a></p>
 
-<p align=center> <a href="https://ult-rebel.carrd.co">𝙘𝙖𝙧𝙧𝙙</a></p>
+<p align=center> <a href="https://marriottsmd.carrd.co/#rules">𝙘𝙖𝙧𝙧𝙙</a></p>
 
 
 <p align=center> " god jeepers. " </p>
