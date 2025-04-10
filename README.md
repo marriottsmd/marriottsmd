@@ -5,6 +5,6 @@
 
   
 <p align="center"> he . they　₊ </p>
-<p align="center"> 𓈒ㅤ　carrd　𓏏𓏏　</p>
-<p align="center"> 𓈒ㅤ　rentry　𓏏𓏏　</p>
-<p align="center"> 𓈒ㅤ　strawpage　𓏏𓏏　</p>
+<p align="center"><a href="https://marriottsmd.straw.page/"></a>𓈒ㅤ　carrd　𓏏𓏏　</p>
+<p align="center"><a href="https://marriottsmd.straw.page/"></a>𓈒ㅤ　rentry　𓏏𓏏　</p>
+<p align="center"><a href="https://marriottsmd.straw.page/"></a>𓈒ㅤ　strawpage　𓏏𓏏　</p>
